@@ -1,1 +1,0 @@
-# SitiAfifahIntanZafitri_UAS
